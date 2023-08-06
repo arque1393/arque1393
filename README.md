@@ -29,7 +29,7 @@ I'm a passionate and dedicated software engineer with a strong foundation in com
 -->
 Let's connect on [LinkedIn](https://www.linkedin.com/in/aritra-ranjan-chowdhury-a517a0200) and discuss how we can build a tech-infused future together!
 
-![Visitor Count](https://visitor-badge.laobi.icu/badge?page_id=arque1393.arque1393)
+![Visitor Count](https://visitor-badge.laobi.icu/badge?page_id=arque1393.aritra1393)
 
 
 
